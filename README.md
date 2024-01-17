@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DelicZorana and Im currently looking for a job/internship in Serbia.
+- 👋 Hi, I’m @DelicZorana and I am currently looking for a job/internship in Serbia.
 - 📫 My email adress is deliczoranaa@gmail.com.
 
 
